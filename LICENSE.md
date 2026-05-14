@@ -1,4 +1,4 @@
-#  
+#  Experience escape tsunami for brainrots like never before with escape tsunami for brainrots Scripts no-ban, the #1 Script. Includes auto-farm and
 
 
 
